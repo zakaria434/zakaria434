@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Zakaria (@zakaria434)
+- 👀 I’m interested in web development, and innovative tech solutions.
+- 🌱 I’m currently learning Python .
+- 💞️ I’m looking to collaborate on new and exciting projects that challenge my development abilities.
+- 📫 How to reach me: beltahzakaria@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: outside I enjoy football, swimming, running, and practicing taekwondo (I'm a green belt!).
