@@ -64,8 +64,6 @@ I combine technical development skills with real-world field coordination, train
 - **Location**: Rabat – Salé, Morocco
 - **LinkedIn**: [linkedin.com/in/zakaria-beltah](https://linkedin.com/in/zakaria-beltah) *(add your actual link)*
 
-📄 [Download my CV](link-to-your-cv.pdf)
-
 ---
 
 ## 🏃‍♂️ Beyond Code
