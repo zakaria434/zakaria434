@@ -60,7 +60,7 @@ I combine technical development skills with real-world field coordination, train
 ## 📫 Contact
 
 - **Email**: beltahzakaria@gmail.com
-- **Phone**: +212 629 00 42 65
+- **Phone**: +212629004265
 - **Location**: Rabat – Salé, Morocco
 - **LinkedIn**: [My Profile](https://linkedin.com/in/zakaria-beltah) 
 
