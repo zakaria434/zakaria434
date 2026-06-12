@@ -62,7 +62,7 @@ MJCC – National Volunteering Program Motatawi3 | Aug 2023 – Aug 2024
 - Email: beltahzakaria@gmail.com
 - Phone: +212629004265
 - Location: Rabat – Salé, Morocco
-- LinkedIn: [https://www.linkedin.com/in/zakaria-beltah/]
+- LinkedIn: [linkedin.com/in/zakaria-beltah](https://linkedin.com/in/zakaria-beltah) 
 
 ---
 
