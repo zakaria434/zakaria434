@@ -68,7 +68,7 @@ I combine technical development skills with real-world field coordination, train
 
 ## 🏃‍♂️ Beyond Code
 
-When I'm not coding or coordinating field missions, I run. Ifrane's mountains and roads were my training ground during my last mission — discipline at work, discipline in sport.
+When I'm not coding or coordinating field missions, I run. Ifrane's mountains and roads were my training ground during my last mission discipline at work, discipline in sport.
 
 ---
 
